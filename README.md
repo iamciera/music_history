@@ -70,15 +70,13 @@ This is a list of all new albums I listen to.
 -  Death Grips - Fashion Week
 -  Death Grips - Jenny Death
 
--  ## LOVED Albums 2015
+## LOVED Albums 2015
 
 -  Unknown Mortal Orchestra - Multi Love
 -  Kendrick Lamar - To Pimp A ButterflyBaby
 -  Elvis Depressidely - new alhambra
 -  Vince Staples - summertime 06' 
 -  Micachu and the shapes - Good Sad Happy Bad
-
---- 
 
 ## LOVED tracks 2015
 
