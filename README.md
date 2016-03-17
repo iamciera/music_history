@@ -70,7 +70,7 @@ This is a list of all new albums I listen to.
 -  Death Grips - Fashion Week
 -  Death Grips - Jenny Death
 
-#-  # LOVED Albums 2015
+-  ## LOVED Albums 2015
 
 -  Unknown Mortal Orchestra - Multi Love
 -  Kendrick Lamar - To Pimp A ButterflyBaby
@@ -201,7 +201,7 @@ Tame Impala - let it happen
 -  Mogwai - Rave Tapes
 -  Sleep Party People - Floating
 
-## Loved albums 2014
+## Loved Albums 2014
 
 -  yMusic - Balance Problem
 -  Mica Levi - Under the skin
@@ -240,7 +240,7 @@ Tame Impala - let it happen
 
 ---
 
-## Loved 2013
+## Loved 2013 Albums
 
 -  Ghostface Killah and Adrian Younge - Twelve Reasons To Die
 -  Pharmakon - Abandon
