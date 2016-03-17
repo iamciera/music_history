@@ -1,9 +1,13 @@
 # Music History 
 
-This is a list of all new albums I listen to. 
+This is my attempt to keep track of all new albums I listen to. Started in 2012 as a way to keep track of my favorite albums of the year. The only rating I give is **LOVE**, which is listed in a seperate section at the bottom of each year. 
+
+While I also listen to older music, I usually do that by devouring entire discographies of artist. I do not keep track of this. Maybe I should.
+
+Music suggestions are appreciated. 
 
 **bold** = albums I am interested in listening to.  
-\* = listen to again 
+\* = note to listen again 
 
 ## Listened 2016
 
@@ -22,7 +26,7 @@ This is a list of all new albums I listen to.
 -  amason- sky city
 -  Dope Body - Kunk
 -  Mbongwana Star - From Kinshasa**
--  **Blanck Mass - Dumb Flesh**
+-  Blanck Mass - Dumb Flesh
 -  Lightning Bolt - Fantasy Empire
 -  **Oneohtrix Point Never - Garden of Delete**
 -  **Disappears - Irreal**
@@ -53,10 +57,9 @@ This is a list of all new albums I listen to.
 -  Kendrick Lamar - To Pimp A ButterflyBaby
 -  Don't Drink Milk - Kill The Fuzz
 -  Baby Birds Don't Drink Milk - Think Tone [2014] 
--  Julia Ruin
--  **Joey Bada$$ - b4.bada$$**
+-  Joey Bada$$ - b4.bada$$
 -  Symbol - Online Architecture (HD022) [2014]
--  **Of Montreal -**
+-  Of Montreal - Aureate Gloom
 -  Father John Misty - I love you honey bear
 -  Sleater Kinney - No Cities to Love
 -  Marilyn Manson - The Pale Emperor
