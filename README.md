@@ -12,6 +12,11 @@ Music suggestions are appreciated.
 ## Listened 2016
 
 -  kendrick lamar - untitled unmastered
+-  lemon demon - spirit phone
+-  **david bowie - Black Star**
+-  Matmos - Ultimate Care II
+-  Big Ups - Before a Million Universes
+-  Pop. 1280 - Paradise
 
 ## Loved 2016
 
