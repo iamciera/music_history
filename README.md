@@ -1,10 +1,10 @@
 # Music History 
 
-This is my attempt to keep track of all new albums I listen to. Started in 2012 as a way to keep track of my favorite albums of the year. The only rating I give is **LOVE**, which is listed in a seperate section at the bottom of each year. 
-
-While I also listen to older music, I usually do that by devouring entire discographies of artist. I do not keep track of this. Maybe I should.
+This is my attempt to keep track of all new albums I listen to. In 2012 I started to keep a list of all my favorite albums released in the current year.  In 2014 I started keeping track of every album I listen to. The only rating I give is LOVE, which is listed in a seperate list at the bottom of each year. 
 
 Music suggestions are appreciated. 
+
+While I also listen to older music, I usually do that by devouring entire discographies of an artist. I do not keep track of this. Maybe I should.
 
 **bold** = albums I am interested in listening to.  
 \* = note to listen again 
@@ -18,7 +18,7 @@ Music suggestions are appreciated.
 -  Big Ups - Before a Million Universes
 -  Pop. 1280 - Paradise
 
-## Loved 2016
+## Loved Albums 2016
 
 -  kendrick lamar - untitled unmastered
 
@@ -87,8 +87,12 @@ Music suggestions are appreciated.
 
 ## LOVED tracks 2015
 
-Unknown Mortal Orchestra - Multi-Love
-Tame Impala - let it happen
+-  Unknown Mortal Orchestra - Multi-Love
+-  Tame Impala - let it happen
+-  Vince Staples - Norf Norf
+-  Cherry Glazer - Had Ten Dollaz
+-  Dilly Dally - Desire
+-  Meat Wave - Delusion Moon 
 
 --- 
 
