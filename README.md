@@ -43,13 +43,12 @@ Music suggestions are appreciated.
 -  Father John Misty - Love You, Honeybear
 -  Julia Holter - Have you in my wilderness
 -  donie trumpet and the social experiment - Surf
--  Orange Juice - Rip it up (1982)The
 -  **Jim James - Regions Of Light and Sound of God**
 -  **Andrew Broder- Crescent Moon**
 -  Tame Impala - Currents
 -  Shamir - Rachet 
 -  **Plambomen - Palmbomen II**
--  **Chelsea Wolf**
+-  Chelsea Wolf - Abyss
 -  tomemitsu - M\_O\_D\_E\_S [2013]
 -  Health - Death Magic
 -  Nicholas Jarr - Pomegranates
