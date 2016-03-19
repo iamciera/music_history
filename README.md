@@ -1,6 +1,6 @@
 # Music History 
 
-This is my attempt to keep track of all new albums I listen to. In 2012 I started to keep a list of all my favorite albums released in the current year.  In 2014 I started keeping track of every album I listen to. The only rating I give is LOVE, which is listed in a seperate list at the bottom of each year. 
+This is my attempt to keep track of new music albums. The only rating I give is LOVE, which is listed in a seperate list at the bottom of each year. 
 
 Music suggestions are appreciated. 
 
