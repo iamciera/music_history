@@ -11,10 +11,12 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2016
 
+-  Chippendale / Gustafsson / Pupillo - Melt
+-  **Future of the left - It's far, far worse than that** (release April 1)
 -  **Anna Meredith - Varmits**
 -  **Porches - Pool**
 -  **Kanye West - The life of Pablo**
--  **The Drones - Feeling Kinda Free**
+-  The Drones - Feeling Kinda Free
 -  kendrick lamar - untitled unmastered
 -  lemon demon - spirit phone
 -  david bowie - Black Star
