@@ -11,9 +11,13 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2016
 
+-  **Anna Meredith - Varmits**
+-  **Porches - Pool**
+-  **Kanye West - The life of Pablo**
+-  **The Drones - Feeling Kinda Free**
 -  kendrick lamar - untitled unmastered
 -  lemon demon - spirit phone
--  **david bowie - Black Star**
+-  david bowie - Black Star
 -  Matmos - Ultimate Care II
 -  Big Ups - Before a Million Universes
 -  Pop. 1280 - Paradise
@@ -26,6 +30,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2015
 
+-  Moses Gunn Collective - Mercy Mountain *
 -  Ducktails - St. Catherine
 -  jaakko eino kalevi - jaakko eino kalevi
 -  amason- sky city
