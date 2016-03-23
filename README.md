@@ -11,6 +11,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2016
 
+-  Andrew Bird - Are you serious
 -  **Denzel Curry - Imperial**
 -  Chippendale / Gustafsson / Pupillo - Melt
 -  **Future of the left - It's far, far worse than that** (release April 1)
@@ -28,6 +29,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 ## Loved Albums 2016
 
 -  kendrick lamar - untitled unmastered
+-  The Drones - Feeling Kinda Free
 
 ---
 
