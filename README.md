@@ -11,6 +11,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2016
 
+-  lil yachty - Summer Songs
 -  Yuck - Stranger Things
 -  Andrew Bird - Are you serious
 -  Denzel Curry - Imperial
