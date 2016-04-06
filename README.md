@@ -11,6 +11,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2016
 
+-  Yuck - Stranger Things
 -  Andrew Bird - Are you serious
 -  Denzel Curry - Imperial
 -  Chippendale / Gustafsson / Pupillo - Melt
@@ -35,6 +36,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2015
 
+-  Silicon - Personal Computer
 -  Moses Gunn Collective - Mercy Mountain *
 -  Ducktails - St. Catherine
 -  jaakko eino kalevi - jaakko eino kalevi
@@ -89,6 +91,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## LOVED Albums 2015
 
+-  Silicon - Personal Computer
 -  Unknown Mortal Orchestra - Multi Love
 -  Kendrick Lamar - To Pimp A ButterflyBaby
 -  Elvis Depressidely - new alhambra
