@@ -1,6 +1,6 @@
 # Music History 
 
-This is my attempt to keep track of new music albums. The only rating I give is LOVE, which is listed in a seperate list at the bottom of each year. 
+This is my attempt to keep track of new music albums I listen to. The only rating I give is LOVE or nothing, which is listed in a seperate list at the bottom of each year. 
 
 Music suggestions are appreciated. 
 
@@ -11,6 +11,10 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2016
 
+-  **Deftones - Gore**
+-  **Deakin - Sleep Cycle**
+-  **M83 - Junk**
+-  tim hecker - love streams
 -  weezer - white album
 -  lil yachty - Summer Songs
 -  Yuck - Stranger Things
