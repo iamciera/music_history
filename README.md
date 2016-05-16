@@ -44,6 +44,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2015
 
+- The Internet - Ego Death
 -  Silicon - Personal Computer
 -  Moses Gunn Collective - Mercy Mountain *
 -  Ducktails - St. Catherine
