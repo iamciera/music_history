@@ -1,4 +1,4 @@
-# Music History 
+## Music History 
 
 This is my attempt to keep track of new music albums I listen to. The only rating I give is LOVE or nothing, which is listed in a seperate list at the bottom of each year. 
 
