@@ -11,8 +11,8 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2016
 
-- **radiohead - a moon shaped pool**
-- **hinds - leave me alone**
+-  radiohead - a moon shaped pool
+-  **hinds - leave me alone**
 -  **Deftones - Gore**
 -  Deakin - Sleep Cycle
 -  M83 - Junk
@@ -39,6 +39,8 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 -  kendrick lamar - untitled unmastered
 -  The Drones - Feeling Kinda Free
+-  Radiohead - A Moon Shaped Pool
+-  Deakin - Sleep Cycle
 
 ---
 
