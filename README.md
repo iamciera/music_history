@@ -12,7 +12,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 ## Listened 2016
 
 -  radiohead - a moon shaped pool
--  **hinds - leave me alone**
+-  hinds - leave me alone
 -  **Deftones - Gore**
 -  Deakin - Sleep Cycle
 -  M83 - Junk
