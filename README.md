@@ -11,6 +11,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2016
 
+-  Marissa Nadler - Strangers
 -  James Blake - The color in anything
 -  radiohead - a moon shaped pool
 -  hinds - leave me alone
