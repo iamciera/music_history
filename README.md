@@ -11,6 +11,9 @@ While I also listen to older music, I usually do that by devouring entire discog
 
 ## Listened 2016
 
+-  Chance the Rapper - Coloring Book
+-  Xui Xui - Plays the Music of Twin Peaks
+-  Nite Jewel - Liquid Cool
 -  Marissa Nadler - Strangers
 -  James Blake - The color in anything
 -  radiohead - a moon shaped pool
@@ -43,6 +46,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 -  The Drones - Feeling Kinda Free
 -  Radiohead - A Moon Shaped Pool
 -  Deakin - Sleep Cycle
+-  Xui Xui - Plays the Music of Twin Peaks
 
 ---
 
@@ -118,7 +122,7 @@ While I also listen to older music, I usually do that by devouring entire discog
 -  Vince Staples - Norf Norf
 -  Cherry Glazer - Had Ten Dollaz
 -  Dilly Dally - Desire
--  Meat Wave - Delusion Moon 
+-  Meat Wave - Delusion Moon
 
 --- 
 
