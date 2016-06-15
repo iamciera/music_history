@@ -4,13 +4,17 @@ This is my attempt to keep track of new music albums I listen to. The only ratin
 
 Music suggestions are appreciated. 
 
-While I also listen to older music, I usually do that by devouring entire discographies of an artist. I do not keep track of this. Maybe I should.
+From 2012 - June 15, 2016 I only listed songs released that year. In an attempt to keep track of albums that *are new to me*, no matter the year, I have started listed all albums I listen to that year. If the album was not released in the year I listened, I specify in parenthesis the album release year. 
 
 **bold** = albums I am interested in listening to.  
 \* = note to listen again 
 
 ## Listened 2016
 
+- The Glimmers - The Glimmers are Gee Gee Fazzi (2009)
+- The Glimmers - Whomp that sucker (2010)
+-  Dan Boden - Soft (2014)
+-  The I.L.Y's - I've always been good at true love (2015)
 -  Chance the Rapper - Coloring Book
 -  Xui Xui - Plays the Music of Twin Peaks
 -  Nite Jewel - Liquid Cool
