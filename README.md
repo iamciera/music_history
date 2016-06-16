@@ -11,6 +11,7 @@ From 2012 - June 15, 2016 I only listed songs released that year. In an attempt 
 
 ## Listened 2016
 
+-  **King Gizzard & The Lizard Wizard - Nonagon Infinity**
 -  **Death Grips - Bottomless Pit**
 -  **Andy Scott - Too Many Voices**
 -  **John Carpenters - Lost Themes II**
