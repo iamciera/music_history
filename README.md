@@ -11,12 +11,13 @@ From 2012 - June 15, 2016 I only listed songs released that year. In an attempt 
 
 ## Listened 2016
 
--  **King Gizzard & The Lizard Wizard - Nonagon Infinity**
 -  **Death Grips - Bottomless Pit**
 -  **Andy Scott - Too Many Voices**
--  **John Carpenters - Lost Themes II**
+-  **John Carpenter - Lost Themes II**
 -  **Dalek - Asphalt for Eden**
 -  **J Dilla - The Diary**
+-  King Gizzard & The Lizard Wizard - Nonagon Infinity
+-  King Gizzard & The Lizard Wizard - Paper Mâché Dream Balloon (2015)
 -  The Glimmers - The Glimmers are Gee Gee Fazzi (2009)
 -  The Glimmers - Whomp that sucker (2010)
 -  Dan Boden - Soft (2014)
@@ -32,6 +33,7 @@ From 2012 - June 15, 2016 I only listed songs released that year. In an attempt 
 -  Deakin - Sleep Cycle
 -  M83 - Junk
 -  tim hecker - love streams
+-  Beyonce - Lemonade
 -  weezer - white album
 -  lil yachty - Summer Songs
 -  Yuck - Stranger Things
