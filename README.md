@@ -11,7 +11,8 @@ From 2012 - June 15, 2016 I only listed songs released that year. In an attempt 
 
 ## Listened 2016
 
--  **Death Grips - Bottomless Pit**
+-  Clipping - Wriggle
+-  Death Grips - Bottomless Pit
 -  **Andy Scott - Too Many Voices**
 -  **John Carpenter - Lost Themes II**
 -  **Dalek - Asphalt for Eden**
