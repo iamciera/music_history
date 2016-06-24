@@ -2,9 +2,9 @@
 
 This is my attempt to keep track of new music albums I listen to. The only rating I give is LOVE or nothing, which is listed in a seperate list at the bottom of each year. 
 
-Music suggestions are appreciated. 
-
 From 2012 - June 15, 2016 I only listed songs released that year. In an attempt to keep track of albums that *are new to me*, no matter the year, I have started listeding all albums I listen to in a given year. If the album was not released in the year I listened, I specify the album release year in parentheses. 
+
+Music suggestions are appreciated. 
 
 **bold** = albums I have not listened to, but want to
 \* = note to listen again 
