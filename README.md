@@ -1,27 +1,34 @@
 ## Music History 
 
-This is my attempt to keep track of new music albums I listen to. The only rating I give is LOVE or nothing, which is listed in a seperate list at the bottom of each year. 
+This list serves as several functions 1. started as a way to track my favorite albums of the year.  2. Because I have a bad memory, this is an attempt to keep track of music I listen to 3. This is my answer to the very difficult question "What kind of music do you listen to?".  
 
-From 2012 - June 15, 2016: Only listed songs released that year.  
-
-June 15, 2016 - Present: In an attempt to keep track of albums that *are new to me*, no matter the year, I started listing all albums. I specify the year in parenthesis if the album was not a recent release.
+The only rating I give is LOVE or nothing, which is listed in a seperate list at the bottom of each year. 
 
 Music suggestions are appreciated. 
+
+## About Data
+
+From 2012 & 2013: Only listed by favorite albums of the year.
+
+2014 to June 15, 2016: Only listed albums that I listened to that were released that year.  
+
+June 15, 2016 - present: In an attempt to keep track of albums that *are new to me*, no matter the year, I started listing all albums. I specify the year in parenthesis if the album was not a recent release.
 
 **bold** = albums I have not listened to, but want to
 \* = note to listen again 
 
 ## Listened 2016
 
+-  **Andy Scott - Too Many Voices**
+-  **John Carpenter - Lost Themes II**
+-  **Dalek - Asphalt for Eden**
+-  **J Dilla - The Diary**
+-  ÒOR 1.5 - OOR (2015)
 -  Laptop Funeral - the closer to you, the safer i feel
 -  Elvis Depressidly - california dreamin'
 -  Jerry Rice - Toon Time Raw
 -  Clipping - Wriggle
 -  Death Grips - Bottomless Pit
--  **Andy Scott - Too Many Voices**
--  **John Carpenter - Lost Themes II**
--  **Dalek - Asphalt for Eden**
--  **J Dilla - The Diary**
 -  King Gizzard & The Lizard Wizard - Nonagon Infinity
 -  King Gizzard & The Lizard Wizard - Paper Mâché Dream Balloon (2015)
 -  The Glimmers - The Glimmers are Gee Gee Fazzi (2009)
