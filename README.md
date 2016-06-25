@@ -11,6 +11,7 @@ Music suggestions are appreciated.
 
 ## Listened 2016
 
+-  **Jerry Rice - Toon Time Raw**
 -  Clipping - Wriggle
 -  Death Grips - Bottomless Pit
 -  **Andy Scott - Too Many Voices**
