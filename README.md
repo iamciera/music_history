@@ -2,7 +2,9 @@
 
 This is my attempt to keep track of new music albums I listen to. The only rating I give is LOVE or nothing, which is listed in a seperate list at the bottom of each year. 
 
-From 2012 - June 15, 2016 I only listed songs released that year. In an attempt to keep track of albums that *are new to me*, no matter the year, I have started listeding all albums I listen to in a given year. If the album was not released in the year I listened, I specify the album release year in parentheses. 
+From 2012 - June 15, 2016: Only listed songs released that year.  
+
+June 15, 2016 - Present: In an attempt to keep track of albums that *are new to me*, no matter the year, I started listing all albums. I specify the year in parenthesis if the album was not a recent release.
 
 Music suggestions are appreciated. 
 
@@ -11,6 +13,7 @@ Music suggestions are appreciated.
 
 ## Listened 2016
 
+-  Laptop Funeral - the closer to you, the safer i feel
 -  Elvis Depressidly - california dreamin'
 -  Jerry Rice - Toon Time Raw
 -  Clipping - Wriggle
