@@ -1,6 +1,6 @@
 ## Music History 
 
-This list serves as several functions 1. started as a way to track my favorite albums of the year.  2. Because I have a bad memory, this is an attempt to keep track of music I listen to 3. This is my answer to the very difficult question "What kind of music do you listen to?".  
+This list serves as several functions 1. started as a way to track my favorite albums of the year  2. I have a bad memory, this is an attempt to keep track of new music 3. This is my answer to the very difficult question "What kind of music do you listen to?".
 
 The only rating I give is LOVE or nothing, which is listed in a seperate list at the bottom of each year. 
 
