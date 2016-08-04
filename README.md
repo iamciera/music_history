@@ -19,12 +19,12 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2016
 
-
 -  **Andy Scott - Too Many Voices**
 -  **John Carpenter - Lost Themes II**
 -  **Dalek - Asphalt for Eden**
 -  **J Dilla - The Diary**
 -  **Swans - The Glowing Man**
+-  Silk Flowers - Death of Silk Flowers (2010)
 -  Nice as Fuck - Nice as Fuck
 -  ÒOR 1.5 - OOR (2015)
 -  Laptop Funeral - the closer to you, the safer i feel
