@@ -25,6 +25,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Dalek - Asphalt for Eden**
 -  **J Dilla - The Diary**
 -  **Swans - The Glowing Man**
+-  Crystal Castles - Amnesty I
 -  Silk Flowers - Death of Silk Flowers (2010)
 -  Nice as Fuck - Nice as Fuck
 -  ÒOR 1.5 - OOR (2015)
