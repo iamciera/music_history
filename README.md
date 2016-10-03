@@ -21,10 +21,21 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 -  **Fat White Family - Songs for Our Mothers**
 -  **Andy Scott - Too Many Voices**
--  **John Carpenter - Lost Themes II**
 -  **Dalek - Asphalt for Eden**
 -  **J Dilla - The Diary**
 -  **Swans - The Glowing Man**
+-  **bon iver - A million on friday**
+-  **Future of the left - It's far, far worse than that** 
+-  **Anna Meredith - Varmits**
+-  **Danny Brown - Atrocity Exhibition**
+-  **Thee Oh Sees - A Weird Exits**
+-  **Angel Olsen - My Woman**
+-  **Nick Cave & The Bad Seeds - Skeleton Tree**
+-  **Street Sects - End Position**
+-  **Deftones - Gore**
+-  John Carpenter - Lost Themes II
+-  wosX - Virtual
+-  clipper - splendor & misery
 -  Crystal Castles - Amnesty I
 -  Silk Flowers - Death of Silk Flowers (2010)
 -  Nice as Fuck - Nice as Fuck
@@ -47,7 +58,6 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  James Blake - The color in anything
 -  radiohead - a moon shaped pool
 -  hinds - leave me alone
--  **Deftones - Gore**
 -  Deakin - Sleep Cycle
 -  M83 - Junk
 -  tim hecker - love streams
@@ -58,9 +68,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  Andrew Bird - Are you serious
 -  Denzel Curry - Imperial
 -  Chippendale / Gustafsson / Pupillo - Melt
--  **Future of the left - It's far, far worse than that** (release April 1)
--  **Anna Meredith - Varmits**
--  **Porches - Pool**
+-  Porches - Pool
 -  Kanye West - The life of Pablo
 -  The Drones - Feeling Kinda Free
 -  kendrick lamar - untitled unmastered
@@ -72,7 +80,6 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Loved Albums 2016
 
--  kendrick lamar - untitled unmastered
 -  The Drones - Feeling Kinda Free
 -  Radiohead - A Moon Shaped Pool
 -  Deakin - Sleep Cycle
@@ -82,14 +89,14 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2015
 
-- The Internet - Ego Death
+-  The Internet - Ego Death
 -  Silicon - Personal Computer
 -  Moses Gunn Collective - Mercy Mountain *
 -  Ducktails - St. Catherine
 -  jaakko eino kalevi - jaakko eino kalevi
 -  amason- sky city
 -  Dope Body - Kunk
--  Mbongwana Star - From Kinshasa**
+-  Mbongwana Star - From Kinshasa
 -  Blanck Mass - Dumb Flesh
 -  Lightning Bolt - Fantasy Empire
 -  **Oneohtrix Point Never - Garden of Delete**
@@ -215,7 +222,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  Nehruviandoom - 
 -  Iceage - Plowing the Field of Love
 -  Ariel Pink - Pom Pom
--  **Jesse Ware - Tough Love**
+-  Jesse Ware - Tough Love
 -  Nachtmystium - The World We Left Behind
 -  Grouper- Ruins
 -  Run the Jewels - run the jewels 2
