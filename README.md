@@ -35,7 +35,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Deftones - Gore**
 -  John Carpenter - Lost Themes II
 -  wosX - Virtual
--  clipper - splendor & misery
+-  clipping - splendor & misery
 -  Crystal Castles - Amnesty I
 -  Silk Flowers - Death of Silk Flowers (2010)
 -  Nice as Fuck - Nice as Fuck
