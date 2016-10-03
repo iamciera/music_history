@@ -27,12 +27,13 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Swans - The Glowing Man**
 -  **Future of the left - It's far, far worse than that** 
 -  **Anna Meredith - Varmits**
--  **Danny Brown - Atrocity Exhibition**
 -  **Angel Olsen - My Woman**
 -  **Nick Cave & The Bad Seeds - Skeleton Tree**
 -  **Street Sects - End Position**
 -  **Deftones - Gore**
--  **Coachwhipes - Double Death (2006)**
+-  Danny Brown - Atrocity Exhibition
+-  Coachwhipes - Double Death (2006)
+-  the julie ruin - hit reset
 -  bon iver - A million on friday
 -  Thee Oh Sees - A Weird Exits
 -  John Carpenter - Lost Themes II
