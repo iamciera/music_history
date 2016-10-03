@@ -14,7 +14,8 @@ From 2012 & 2013: Only listed by favorite albums of the year.
 
 June 15, 2016 - present: In an attempt to keep track of albums that *are new to me*, no matter the year, I started listing all albums. I specify the year in parenthesis if the album was not a recent release.
 
-**bold** = albums I have not listened to, but want to
+**bold** = albums I have not listened to, but want to.
+
 \* = note to listen again 
 
 ## Listened 2016
@@ -24,15 +25,16 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Dalek - Asphalt for Eden**
 -  **J Dilla - The Diary**
 -  **Swans - The Glowing Man**
--  **bon iver - A million on friday**
 -  **Future of the left - It's far, far worse than that** 
 -  **Anna Meredith - Varmits**
 -  **Danny Brown - Atrocity Exhibition**
--  **Thee Oh Sees - A Weird Exits**
 -  **Angel Olsen - My Woman**
 -  **Nick Cave & The Bad Seeds - Skeleton Tree**
 -  **Street Sects - End Position**
 -  **Deftones - Gore**
+-  **Coachwhipes - Double Death (2006)**
+-  bon iver - A million on friday
+-  Thee Oh Sees - A Weird Exits
 -  John Carpenter - Lost Themes II
 -  wosX - Virtual
 -  clipping - splendor & misery
