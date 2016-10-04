@@ -14,9 +14,11 @@ From 2012 & 2013: Only listed by favorite albums of the year.
 
 June 15, 2016 - present: In an attempt to keep track of albums that *are new to me*, no matter the year, I started listing all albums. I specify the year in parenthesis if the album was not a recent release.
 
-**bold** = albums I have not listened to, but want to.
+**bold** = need to listen
 
 \* = note to listen again 
+
+
 
 ## Listened 2016
 
@@ -94,6 +96,12 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2015
 
+-  **Oneohtrix Point Never - Garden of Delete**
+-  **Disappears - Irreal**
+-  **Colin Stetson & Sarah Neufeld - Never were the way She Was**
+-  **Jim James - Regions Of Light and Sound of God**
+-  **Andrew Broder- Crescent Moon**
+-  **Plambomen - Palmbomen II**
 -  The Internet - Ego Death
 -  Silicon - Personal Computer
 -  Moses Gunn Collective - Mercy Mountain 
@@ -104,9 +112,6 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  Mbongwana Star - From Kinshasa
 -  Blanck Mass - Dumb Flesh
 -  Lightning Bolt - Fantasy Empire
--  **Oneohtrix Point Never - Garden of Delete**
--  **Disappears - Irreal**
--  **Colin Stetson & Sarah Neufeld - Never were the way She Was**
 -  Napalm Death - Apex Predator - Easy Meat
 -  Chemical Brothers - Born in the Echoes
 -  Micachu & the Shapes - Good Sad Happy Bad
@@ -114,12 +119,8 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  Father John Misty - Love You, Honeybear
 -  Julia Holter - Have you in my wilderness
 -  donie trumpet and the social experiment - Surf
--  **Jim James - Regions Of Light and Sound of God**
--  **Andrew Broder- Crescent Moon**
 -  Tame Impala - Currents
 -  Shamir - Rachet 
--  **Plambomen - Palmbomen II**
--  Chelsea Wolf - Abyss
 -  tomemitsu - M\_O\_D\_E\_S [2013]
 -  Health - Death Magic
 -  Nicholas Jarr - Pomegranates
@@ -170,6 +171,13 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2014 - Albums and EPs
 
+-  **Stromba - Tales From The Sitting Room**
+-  **Coultrain - Side Effect Of Make-Believe; divided for loves sake - look out**
+-  **Hanni El Khatib - Moonlight - look out for**
+-  **A Sunny Day in Glasgow - Sea When Absent**
+-  **Vision Fortune - Country Music - sweet liars rip off - look out**
+-  **Last Ex - Last Ex**
+-  **Ricardo Donso - A song for echo**
 -  Flaming Lips - With A Little Help From My Fwends
 -  Vince Staples - Hell Can Wait
 -  TV on the Radio - Seeds
@@ -177,13 +185,10 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  eno, hyde - high life
 -  Ricky Eat Acid - Sun Over Hills \*
 -  the witches - annable dream reader
--  **Vision Fortune - Country Music - sweet liars rip off - look out**
 -  Bianco & Levante
 -  chlorine - demo tape
 -  Sia - 1000 Forms of Fear - track - Chandelier \*
 -  Mica Levi - Under the skin
--  **Last Ex - Last Ex**
--  **Ricardo Donso - A song for echo**
 -  Timbre Timbre - Hot Dream
 -  Die Antwoord - Donker Mag
 -  Ian William Craig - A turn of Breath - ambient
@@ -208,11 +213,8 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  TOW3Rs - TL;DR
 -  The Original Score to the Motion Picture: Black Dynamite (2014 re-release, original 2009)
 -  Seekae - The Worry - awesome
--  **Stromba - Tales From The Sitting Room**
 -  Train Kayhatu - Soture EP
--  **Coultrain - Side Effect Of Make-Believe; divided for loves sake - look out**
 -  Freds Gibbs & Madlib - Knicks Remix EP
--  **Hanni El Khatib - Moonlight - look out for**
 -  Grimes - Geidi Primes (2010)
 -  Panda Bear - Mr. Noah EP
 -  Roberta Bondar - Caustic (9BT090)
@@ -223,7 +225,6 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  Flying Lotus - You're Dead!
 -  Calvin Harris - Motion \*
 -  The Flaming Lips - With a Little Help from My Fwends
--  **A Sunny Day in Glasgow - Sea When Absent**
 -  Nehruviandoom - 
 -  Iceage - Plowing the Field of Love
 -  Ariel Pink - Pom Pom
