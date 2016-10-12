@@ -29,10 +29,10 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Swans - The Glowing Man**
 -  **Future of the left - It's far, far worse than that** 
 -  **Anna Meredith - Varmits**
--  **Angel Olsen - My Woman**
 -  **Nick Cave & The Bad Seeds - Skeleton Tree**
 -  **Street Sects - End Position**
 -  **Deftones - Gore**
+-  Angel Olsen - My Woman
 -  Clams Casino - 32 levels
 -  Vic Spencer - Who the fuck is vic spencer?
 -  Danny Brown - Atrocity Exhibition
