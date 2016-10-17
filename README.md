@@ -22,16 +22,16 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2016
 
--  **Fat White Family - Songs for Our Mothers**
 -  **Andy Scott - Too Many Voices**
 -  **Dalek - Asphalt for Eden**
 -  **J Dilla - The Diary**
--  **Swans - The Glowing Man**
 -  **Future of the left - It's far, far worse than that** 
 -  **Anna Meredith - Varmits**
--  **Nick Cave & The Bad Seeds - Skeleton Tree**
 -  **Street Sects - End Position**
 -  **Deftones - Gore**
+-  Fat White Family - Songs for Our Mothers
+-  Nick Cave & The Bad Seeds - Skeleton Tree
+-  Swans - The Glowing Man
 -  Angel Olsen - My Woman
 -  Clams Casino - 32 levels
 -  Vic Spencer - Who the fuck is vic spencer?
