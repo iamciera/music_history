@@ -22,6 +22,8 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2016
 
+-  **Jeff Rosenstock - Worry**
+-  **Solange - A Seat at the Table**
 -  **Andy Scott - Too Many Voices**
 -  **Dalek - Asphalt for Eden**
 -  **J Dilla - The Diary**
