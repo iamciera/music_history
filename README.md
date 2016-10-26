@@ -31,6 +31,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Anna Meredith - Varmits**
 -  **Street Sects - End Position**
 -  **Deftones - Gore**
+-  Zion I - The Labyrinth
 -  Fat White Family - Songs for Our Mothers
 -  Nick Cave & The Bad Seeds - Skeleton Tree
 -  Swans - The Glowing Man
