@@ -176,11 +176,11 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 -  **Stromba - Tales From The Sitting Room**
 -  **Coultrain - Side Effect Of Make-Believe; divided for loves sake - look out**
--  **Hanni El Khatib - Moonlight - look out for**
 -  **A Sunny Day in Glasgow - Sea When Absent**
 -  **Vision Fortune - Country Music - sweet liars rip off - look out**
 -  **Last Ex - Last Ex**
 -  **Ricardo Donso - A song for echo**
+-  Hanni El Khatib - Moonlight - look out for
 -  Flaming Lips - With A Little Help From My Fwends
 -  Vince Staples - Hell Can Wait
 -  TV on the Radio - Seeds
