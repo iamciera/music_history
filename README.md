@@ -31,9 +31,10 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Anna Meredith - Varmits**
 -  **Street Sects - End Position**
 -  **Deftones - Gore**
--  **Swain - The Long Dark Blue**
 -  **Conor Oberst - Ruminations**
 -  **Crying - Beyond the Fleeting Gales**
+-  TOY - Clear Shot
+-  Swain - The Long Dark Blue
 -  The Wytches - Home Recordings
 -  The Beach Boys - Sunflower (1970)
 -  The Wytches - All your happy life
@@ -97,6 +98,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Loved Albums 2016
 
+-  King Gizzard & The Lizard Wizard - Nonagon Infinity
 -  The Drones - Feeling Kinda Free
 -  Radiohead - A Moon Shaped Pool
 -  Deakin - Sleep Cycle
