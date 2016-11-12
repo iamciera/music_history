@@ -34,6 +34,9 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Swain - The Long Dark Blue**
 -  **Conor Oberst - Ruminations**
 -  **Crying - Beyond the Fleeting Gales**
+-  The Wytches - Home Recordings
+-  The Beach Boys - Sunflower (1970)
+-  The Wytches - All your happy life
 -  Kero Kero Bonito - Bonito Generation
 -  Zion I - The Labyrinth
 -  Fat White Family - Songs for Our Mothers
