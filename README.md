@@ -33,6 +33,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Deftones - Gore**
 -  **Conor Oberst - Ruminations**
 -  **Crying - Beyond the Fleeting Gales**
+-  Kelis - Tasty (2003)
 -  Cloud Nothings - modern act
 -  TOY - Clear Shot
 -  Swain - The Long Dark Blue
