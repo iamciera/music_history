@@ -29,10 +29,10 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **J Dilla - The Diary**
 -  **Future of the left - It's far, far worse than that** 
 -  **Anna Meredith - Varmits**
--  **Street Sects - End Position**
 -  **Deftones - Gore**
 -  **Conor Oberst - Ruminations**
--  **Crying - Beyond the Fleeting Gales**
+-  Street Sects - End Position
+-  Crying - Beyond the Fleeting Gales
 -  Kelis - Tasty (2003)
 -  Cloud Nothings - modern act
 -  TOY - Clear Shot
