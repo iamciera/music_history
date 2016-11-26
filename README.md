@@ -31,6 +31,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Anna Meredith - Varmits**
 -  **Deftones - Gore**
 -  **Conor Oberst - Ruminations**
+-  **Frank Ocean - Blonde**
 -  Street Sects - End Position
 -  Crying - Beyond the Fleeting Gales
 -  Kelis - Tasty (2003)
