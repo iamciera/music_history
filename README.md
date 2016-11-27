@@ -23,7 +23,6 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 ## Listened 2016
 
 -  **Jeff Rosenstock - Worry**
--  **Solange - A Seat at the Table**
 -  **Andy Scott - Too Many Voices**
 -  **Dalek - Asphalt for Eden**
 -  **J Dilla - The Diary**
@@ -31,12 +30,17 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Anna Meredith - Varmits**
 -  **Deftones - Gore**
 -  **Conor Oberst - Ruminations**
+-  **Childish Gambino - "Awaken, My Love!"**
+-  **Mitski - Puberty 2**
 -  **Frank Ocean - Blonde**
+-  **Margaret Gasby - Emotions and Math**
+-  **Frankie Cosmos - Next Thing**
 -  Street Sects - End Position
 -  Crying - Beyond the Fleeting Gales
 -  Kelis - Tasty (2003)
 -  Cloud Nothings - modern act
 -  TOY - Clear Shot
+-  Solange - A Seat at the Table
 -  Swain - The Long Dark Blue
 -  The Wytches - Home Recordings
 -  The Beach Boys - Sunflower (1970)
