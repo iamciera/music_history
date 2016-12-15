@@ -35,6 +35,11 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Frank Ocean - Blonde**
 -  **Margaret Gasby - Emotions and Math**
 -  **Frankie Cosmos - Next Thing**
+-  **18+ - Collect**
+-  **18+ - FORE**
+-  **Sean Nicholas Savage - Magnificent Fist**
+-  **Audra the Rapper - Anti-Love Songs**
+-  **Morgan Delt - Phase Zero**
 -  Street Sects - End Position
 -  Crying - Beyond the Fleeting Gales
 -  Kelis - Tasty (2003)
