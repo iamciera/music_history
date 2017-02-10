@@ -29,18 +29,20 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Future of the left - It's far, far worse than that** 
 -  **Anna Meredith - Varmits**
 -  **Deftones - Gore**
--  **Conor Oberst - Ruminations**
--  **Childish Gambino - "Awaken, My Love!"**
 -  **Mitski - Puberty 2**
--  **Frank Ocean - Blonde**
 -  **Margaret Gasby - Emotions and Math**
--  **Frankie Cosmos - Next Thing**
--  **18+ - Collect**
--  **18+ - FORE**
 -  **Sean Nicholas Savage - Magnificent Fist**
--  **Audra the Rapper - Anti-Love Songs**
 -  **Morgan Delt - Phase Zero**
+-  Frank Ocean - Blonde
+-  Conor Oberst - Ruminations
+-  Childish Gambino - "Awaken, My Love!"
+-  Frankie Cosmos - Next Thing
+-  18+ - Collect
+-  18+ - FORE
+-  Audra the Rapper - Anti-Love Songs
 -  Street Sects - End Position
+-  Cakes da Killa - Hedonism
+-  Mykki Blanco - Mykki
 -  Crying - Beyond the Fleeting Gales
 -  Kelis - Tasty (2003)
 -  Cloud Nothings - modern act
@@ -110,6 +112,8 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Loved Albums 2016
 
+-  Cakes da Killa - Hedonism
+-  Mykki Blanco - Mykki
 -  King Gizzard & The Lizard Wizard - Nonagon Infinity
 -  The Drones - Feeling Kinda Free
 -  Radiohead - A Moon Shaped Pool
