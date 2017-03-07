@@ -18,7 +18,16 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 \* = note to listen again 
 
+## Listened 2017
 
+- **Sampha - Process**
+- **Nine Inch Nails - Not the actual events**
+- **Mount Eerie - Ravens**
+- **King Gizzard and the Lizard Wizard - Flying Microtonal Bannana**
+- **Shugo Tokumaru - Lita-Ruta**
+- Dirty Projectors - The Dirty Projectors
+
+## Loved 2017
 
 ## Listened 2016
 
