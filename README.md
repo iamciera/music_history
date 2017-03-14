@@ -20,11 +20,12 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2017
 
-- **Sampha - Process**
-- **Nine Inch Nails - Not the actual events**
-- **Mount Eerie - Ravens**
-- **King Gizzard and the Lizard Wizard - Flying Microtonal Bannana**
 - **Shugo Tokumaru - Lita-Ruta**
+- **Sampha - Process**
+- Actress - X22RM3 (single)
+- Nine Inch Nails - Not the actual events
+- Mount Eerie - Ravens (single)
+- King Gizzard and the Lizard Wizard - Flying Microtonal Bannana
 - Dirty Projectors - The Dirty Projectors
 
 ## Loved 2017
