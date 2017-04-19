@@ -51,6 +51,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  **Margaret Gasby - Emotions and Math**
 -  **Sean Nicholas Savage - Magnificent Fist**
 -  **Morgan Delt - Phase Zero**
+-  Mattress- Looking for my people
 -  Frank Ocean - Blonde
 -  Conor Oberst - Ruminations
 -  Childish Gambino - "Awaken, My Love!"
@@ -137,6 +138,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 -  Radiohead - A Moon Shaped Pool
 -  Deakin - Sleep Cycle
 -  Xui Xui - Plays the Music of Twin Peaks
+-  Mattress- Looking for my people
 
 ---
 
