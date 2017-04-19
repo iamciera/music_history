@@ -19,7 +19,15 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 \* = note to listen again 
 
 ## Listened 2017
-
+- **Real Estate - In Mind**
+- **Pallbearer - Heartless**
+- **Ibibio Sound Machine - Uyai**
+- **Freddie Gibbs - You only Live 2wice**
+- **Future Island - The Far Field**
+- **Xui Xui - FORGET**
+- **Mount Eerie - A crow looked at me**
+- **Kendrick Lamar - DAMN.**
+- **Father John Misty - Pure Comedy**
 - **Shugo Tokumaru - Lita-Ruta**
 - **Sampha - Process**
 - Actress - X22RM3 (single)
