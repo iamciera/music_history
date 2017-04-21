@@ -23,13 +23,13 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Pallbearer - Heartless**
 - **Ibibio Sound Machine - Uyai**
 - **Freddie Gibbs - You only Live 2wice**
-- **Future Island - The Far Field**
 - **Xui Xui - FORGET**
-- **Mount Eerie - A crow looked at me**
 - **Kendrick Lamar - DAMN.**
 - **Father John Misty - Pure Comedy**
 - **Shugo Tokumaru - Lita-Ruta**
 - **Sampha - Process**
+- Future Island - The Far Field
+- Mount Eerie - A crow looked at me
 - Actress - X22RM3 (single)
 - Nine Inch Nails - Not the actual events
 - Mount Eerie - Ravens (single)
@@ -37,6 +37,8 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - Dirty Projectors - The Dirty Projectors
 
 ## Loved 2017
+
+- Mount Eerie - A crow looked at me
 
 ## Listened 2016
 
