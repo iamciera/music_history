@@ -23,12 +23,13 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Pallbearer - Heartless**
 - **Ibibio Sound Machine - Uyai**
 - **Freddie Gibbs - You only Live 2wice**
-- **Xui Xui - FORGET**
-- **Kendrick Lamar - DAMN.**
 - **Father John Misty - Pure Comedy**
 - **Shugo Tokumaru - Lita-Ruta**
 - **Sampha - Process**
-- Future Island - The Far Field
+- Animal Collective - Meeting of the Waters - EP
+- Xui Xui - FORGET
+- Kendrick Lamar - DAMN.
+- Future Islands - The Far Field
 - Mount Eerie - A crow looked at me
 - Actress - X22RM3 (single)
 - Nine Inch Nails - Not the actual events
