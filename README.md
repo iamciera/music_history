@@ -19,13 +19,19 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 \* = note to listen again 
 
 ## Listened 2017
+
+- **Forest Swords - Compassion**
+- **Perfume Genius - No Shape**
+- **Feist - Pleasure**
 - **Real Estate - In Mind**
 - **Pallbearer - Heartless**
 - **Ibibio Sound Machine - Uyai**
-- **Freddie Gibbs - You only Live 2wice**
-- **Father John Misty - Pure Comedy**
-- **Shugo Tokumaru - Lita-Ruta**
 - **Sampha - Process**
+- **Slowdive - Self-titled**
+- **Mac Demarco - This Old Dog**
+- Freddie Gibbs - You only Live 2wice
+- Father John Misty - Pure Comedy
+- Shugo Tokumaru - Lita-Ruta
 - Animal Collective - Meeting of the Waters - EP
 - Xui Xui - FORGET
 - Kendrick Lamar - DAMN.
