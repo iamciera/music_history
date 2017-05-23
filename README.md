@@ -20,8 +20,6 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2017
 
-- **Forest Swords - Compassion**
-- **Perfume Genius - No Shape**
 - **Feist - Pleasure**
 - **Real Estate - In Mind**
 - **Pallbearer - Heartless**
@@ -29,6 +27,8 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Sampha - Process**
 - **Slowdive - Self-titled**
 - **Mac Demarco - This Old Dog**
+- Forest Swords - Compassion
+- Perfume Genius - No Shape
 - Freddie Gibbs - You only Live 2wice
 - Father John Misty - Pure Comedy
 - Shugo Tokumaru - Lita-Ruta
