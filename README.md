@@ -24,6 +24,10 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Pallbearer - Heartless**
 - **Sampha - Process**
 - **Slowdive - Self-titled**
+- **Off The Radar - Noga Erez**
+- **Kindling - No Generation**
+- **Rev Rev Rev - Rev Rev Rev**
+- **Crescendo - WWNBB\#007**
 - Lauren Bousfield - Fire Songs
 - Ibibio Sound Machine - Uyai
 - Real Estate - In Mind
