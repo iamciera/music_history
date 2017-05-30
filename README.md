@@ -24,6 +24,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Pallbearer - Heartless**
 - **Sampha - Process**
 - **Slowdive - Self-titled**
+- Lauren Bousfield - Fire Songs
 - Ibibio Sound Machine - Uyai
 - Real Estate - In Mind
 - Mac Demarco - This Old Dog
