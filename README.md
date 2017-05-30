@@ -21,12 +21,12 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 ## Listened 2017
 
 - **Feist - Pleasure**
-- **Real Estate - In Mind**
 - **Pallbearer - Heartless**
-- **Ibibio Sound Machine - Uyai**
 - **Sampha - Process**
 - **Slowdive - Self-titled**
-- **Mac Demarco - This Old Dog**
+- Ibibio Sound Machine - Uyai
+- Real Estate - In Mind
+- Mac Demarco - This Old Dog
 - Forest Swords - Compassion
 - Perfume Genius - No Shape
 - Freddie Gibbs - You only Live 2wice
