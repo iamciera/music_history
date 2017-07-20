@@ -21,18 +21,18 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 ## Listened 2017
 
 - **Jay-Z - 4:44**
-- **Kirin J Callinan - Bravado**
 - **Kevin Abstract - American Boyfriend (2016)**
 - **Brockhampton - Saturation**
 - **Billy Woods - Known Unknowns**
 - **Guerilla Toss - GT ULTRA**
-- **Algiers - the underside of power**
 - **Pallbearer - Heartless**
 - **Slowdive - Self-titled**
 - **Off The Radar - Noga Erez**
 - **Kindling - No Generation**
 - **Rev Rev Rev - Rev Rev Rev**
 - **Crescendo - WWNBB\#007**
+- Kirin J Callinan - Bravado
+- Algiers - the underside of power
 - Sampha - Process
 - Feist - Pleasure
 - Lauren Bousfield - Fire Songs
@@ -59,6 +59,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 - Mount Eerie - A crow looked at me
 - Dirty Projectors - The Dirty Projectors
+- Algiers - the underside of power
 
 ## Listened 2016
 
