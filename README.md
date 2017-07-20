@@ -20,14 +20,21 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2017
 
-- **Feist - Pleasure**
+- **Jay-Z - 4:44**
+- **Kirin J Callinan - Bravado**
+- **Kevin Abstract - American Boyfriend (2016)**
+- **Brockhampton - Saturation**
+- **Billy Woods - Known Unknowns**
+- **Guerilla Toss - GT ULTRA**
+- **Algiers - the underside of power**
 - **Pallbearer - Heartless**
-- **Sampha - Process**
 - **Slowdive - Self-titled**
 - **Off The Radar - Noga Erez**
 - **Kindling - No Generation**
 - **Rev Rev Rev - Rev Rev Rev**
 - **Crescendo - WWNBB\#007**
+- Sampha - Process
+- Feist - Pleasure
 - Lauren Bousfield - Fire Songs
 - Ibibio Sound Machine - Uyai
 - Real Estate - In Mind
@@ -51,6 +58,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 ## Loved 2017
 
 - Mount Eerie - A crow looked at me
+- Dirty Projectors - The Dirty Projectors
 
 ## Listened 2016
 
