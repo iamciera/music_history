@@ -31,7 +31,10 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Kindling - No Generation**
 - **Rev Rev Rev - Rev Rev Rev**
 - **Crescendo - WWNBB\#007**
-- **
+- **Pissed Jeans - Why Love Now**
+- **Shabazz Palaces - Quazarz**
+- **Arcade Fire - Everything Now**
+- **Nine Inch Nails - Add Violence**
 - Car Seat Headrest - Teens of Denial (2016)
 - Kevin Morby - City Music
 - Tyler the Creator - Flower Boy
