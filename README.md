@@ -31,6 +31,10 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Kindling - No Generation**
 - **Rev Rev Rev - Rev Rev Rev**
 - **Crescendo - WWNBB\#007**
+- **
+- Car Seat Headrest - Teens of Denial (2016)
+- Kevin Morby - City Music
+- Tyler the Creator - Flower Boy
 - Kirin J Callinan - Bravado
 - Algiers - the underside of power
 - Sampha - Process
