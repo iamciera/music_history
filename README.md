@@ -33,8 +33,10 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Crescendo - WWNBB\#007**
 - **Pissed Jeans - Why Love Now**
 - **Shabazz Palaces - Quazarz**
-- **Arcade Fire - Everything Now**
 - **Nine Inch Nails - Add Violence**
+- **Liars - TFCF**
+- **Chelsea Wolfe - Vex**
+- Arcade Fire - Everything Now
 - Car Seat Headrest - Teens of Denial (2016)
 - Kevin Morby - City Music
 - Tyler the Creator - Flower Boy
