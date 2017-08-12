@@ -24,18 +24,18 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Kevin Abstract - American Boyfriend (2016)**
 - **Brockhampton - Saturation**
 - **Billy Woods - Known Unknowns**
-- **Guerilla Toss - GT ULTRA**
 - **Pallbearer - Heartless**
 - **Slowdive - Self-titled**
 - **Off The Radar - Noga Erez**
 - **Kindling - No Generation**
 - **Rev Rev Rev - Rev Rev Rev**
 - **Crescendo - WWNBB\#007**
-- **Pissed Jeans - Why Love Now**
 - **Shabazz Palaces - Quazarz**
 - **Nine Inch Nails - Add Violence**
 - **Liars - TFCF**
-- **Chelsea Wolfe - Vex**
+- Pissed Jeans - Why Love Now
+- Chelsea Wolfe - Vex - Single
+- Guerilla Toss - GT ULTRA
 - Arcade Fire - Everything Now
 - Car Seat Headrest - Teens of Denial (2016)
 - Kevin Morby - City Music
