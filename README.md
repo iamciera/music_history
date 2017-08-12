@@ -39,6 +39,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - Arcade Fire - Everything Now
 - Car Seat Headrest - Teens of Denial (2016)
 - Kevin Morby - City Music
+- IO Echo - Harm 
 - Tyler the Creator - Flower Boy
 - Kirin J Callinan - Bravado
 - Algiers - the underside of power
