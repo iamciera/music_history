@@ -67,6 +67,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Loved 2017
 
+- Kevin Morby - City Music
 - Mount Eerie - A crow looked at me
 - Dirty Projectors - The Dirty Projectors
 - Algiers - the underside of power
