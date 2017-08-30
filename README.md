@@ -20,6 +20,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2017
 
+- **Grizzly Bear - Painted Ruins**
 - **Jay-Z - 4:44**
 - **Kevin Abstract - American Boyfriend (2016)**
 - **Billy Woods - Known Unknowns**
@@ -29,6 +30,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Rev Rev Rev - Rev Rev Rev**
 - **Crescendo - WWNBB\#007**
 - **Nine Inch Nails - Add Violence**
+- King Gizzard & The Lizard Wizard w/ Mild High Club - Sketches of Brunswick East
 - Brockhampton - Saturation
 - Slowdive - Self-titled
 - Liars - TFCF
