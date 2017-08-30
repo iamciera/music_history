@@ -22,17 +22,17 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 - **Jay-Z - 4:44**
 - **Kevin Abstract - American Boyfriend (2016)**
-- **Brockhampton - Saturation**
 - **Billy Woods - Known Unknowns**
 - **Pallbearer - Heartless**
-- **Slowdive - Self-titled**
 - **Off The Radar - Noga Erez**
 - **Kindling - No Generation**
 - **Rev Rev Rev - Rev Rev Rev**
 - **Crescendo - WWNBB\#007**
-- **Shabazz Palaces - Quazarz**
 - **Nine Inch Nails - Add Violence**
-- **Liars - TFCF**
+- Brockhampton - Saturation
+- Slowdive - Self-titled
+- Liars - TFCF
+- Shabazz Palaces - Quazarz
 - Pissed Jeans - Why Love Now
 - Chelsea Wolfe - Vex - Single
 - Guerilla Toss - GT ULTRA
@@ -67,6 +67,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Loved 2017
 
+- Brockhampton - Saturation
 - Kevin Morby - City Music
 - Mount Eerie - A crow looked at me
 - Dirty Projectors - The Dirty Projectors
