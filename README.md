@@ -22,16 +22,17 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 - **Grizzly Bear - Painted Ruins**
 - **Jay-Z - 4:44**
-- **Kevin Abstract - American Boyfriend (2016)**
 - **Billy Woods - Known Unknowns**
 - **Pallbearer - Heartless**
 - **Off The Radar - Noga Erez**
 - **Kindling - No Generation**
 - **Rev Rev Rev - Rev Rev Rev**
 - **Crescendo - WWNBB\#007**
-- **Nine Inch Nails - Add Violence**
+- Brockhampton - Staturation III
+- Nine Inch Nails - Add Violence
+- Kevin Abstract - American Boyfriend (2016)
 - King Gizzard & The Lizard Wizard w/ Mild High Club - Sketches of Brunswick East
-- Brockhampton - Saturation
+- Brockhampton - Saturation II
 - Slowdive - Self-titled
 - Liars - TFCF
 - Shabazz Palaces - Quazarz
@@ -69,7 +70,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Loved 2017
 
-- Brockhampton - Saturation
+- Brockhampton - Saturation II
 - Kevin Morby - City Music
 - Mount Eerie - A crow looked at me
 - Dirty Projectors - The Dirty Projectors
