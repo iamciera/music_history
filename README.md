@@ -18,6 +18,20 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 \* = note to listen again 
 
+
+## Listened 2018
+
+- **No Age - Snares like a haircut**
+
+- **Car Seat Headrest - Twin Fantasy**
+- **JPEGMAFIA - Veteran**
+- Tune-Yards - I can feel you creep into my private life
+- Black Panther Soundtrack
+- MGMT - Little Dark Age
+- U.S. Girls - In a Poem Unlimited
+- Mark Pritchard - 
+- Group Love - Spreading Rumours (2013)
+
 ## Listened 2017
 
 - **Grizzly Bear - Painted Ruins**
