@@ -17,9 +17,18 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 **bold** = need to listen
 
 \* = note to listen again 
+## Listened 2020
+
+- Dan Deacon - Mystic Familiar
+
+## Listened 2019 - FAIL
+
+Dorian Electra - Flamboyant
 
 
-## Listened 2018
+## Listened 2018 - FAIL
+
+FAIL
 
 - Car Seat Headrest - Twin Fantasy
 - No Age - Snares like a haircut- JPEGMAFIA - Veteran
