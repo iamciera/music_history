@@ -23,6 +23,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - **Dan Deacon - Mystic Familiar**
 - **Fiona Apple - Fetch the bold cutters**
 - Nicolas Jaar - Cenizas
+- Nicolas Jaar - Sirens (2016)
 - Dirty Projectors - Windows Open
 - Mac Miller - Circles
 - King Krule - Man Alive!
