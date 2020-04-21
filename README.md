@@ -26,6 +26,7 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 - Nicolas Jaar - Sirens (2016)
 - Dirty Projectors - Windows Open
 - Mac Miller - Circles
+- Haru Nemuri - Lovetheism
 - King Krule - Man Alive!
 - Kurt Vile - Bottle it in (2018)
 - Desert Sessions - Vol. 11 + 12 (2019)
