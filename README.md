@@ -17,9 +17,14 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 **bold** = need to listen
 
 \* = note to listen again 
+
 ## Listened 2020
 
 - Dan Deacon - Mystic Familiar
+- Dirty Projectors - Windows Open
+- Mac Miller - Circles
+- King Krule - Man Alive!
+- Fiona Apple - Fetch the bold cutters
 
 ## Listened 2019 - FAIL
 
