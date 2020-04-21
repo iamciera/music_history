@@ -20,11 +20,14 @@ June 15, 2016 - present: In an attempt to keep track of albums that *are new to 
 
 ## Listened 2020
 
-- Dan Deacon - Mystic Familiar
+- **Dan Deacon - Mystic Familiar**
+- **Fiona Apple - Fetch the bold cutters**
 - Dirty Projectors - Windows Open
 - Mac Miller - Circles
 - King Krule - Man Alive!
-- Fiona Apple - Fetch the bold cutters
+- Kurt Vile - Bottle it in (2018)
+- Desert Sessions - Vol. 11 + 12 (2019)
+- Caribu - Suddenly
 
 ## Listened 2019 - FAIL
 
